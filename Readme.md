@@ -35,5 +35,10 @@
 <div>
 
 <div>
-  https://i.imgur.com/vZukG9g.jpeg>
-<a href="https://i.imgur.com/vZukG9g.jpeg"><
+    <p align="center">
+
+  
+<a href="https://chat.whatsapp.com/KzPohCK51Tt0Ok4Gt0N12T" target="blank"><img align="center" src="https://i.imgur.com/B2rh80I.jpeg" height="85" width="130" /></a>
+
+
+<a href="https://i.imgur.com/vZukG9g.jpeg">
